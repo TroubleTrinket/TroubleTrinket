@@ -8,7 +8,7 @@
 
 $${\color{hotpink}trinket \space tin \space system}$$
 
-<img src="https://media.discordapp.net/attachments/957531053386510347/1465243935566987364/Untitled378_20260126001532.png?ex=69786641&is=697714c1&hm=aeda07b0c41954d40510cdc26452f05b45b460a62056b5b82bac16b3b15900f2&=&format=webp&quality=lossless&width=808&height=930" style="width:50%;">
+<img src="https://i.ibb.co/f5wLGNp/image-2026-02-03-221409541.png" style="width:50%;">
 
 ``17 | infp``
 
@@ -18,4 +18,4 @@ $${\color{hotpink}trinket \space tin \space system}$$
 
 <img src="https://64.media.tumblr.com/7225d2dcf097a53e5d5c95b0ab0ff06b/bbc29107b0806da4-d8/s640x960/3c2da904cbd265abcb5547180c0b8cd0e7df5490.gifv">
 
-``2x2 is my best friend hashtag platonic yume`` <img src="https://media.discordapp.net/attachments/957531053386510347/1465250871825666048/Untitled379_20260126004327.png?ex=69786cb6&is=69771b36&hm=89e60c3b47bb7acf520508ff9f4db9a42b723a49c68166aea346aa5353c20ade&=&format=webp&quality=lossless&width=813&height=791" style="width:10%;">
+``2x2 is my best friend hashtag platonic yume`` <img src="https://i.ibb.co/1tj7q8yJ/image-2026-02-03-221442194.png" style="width:10%;">
