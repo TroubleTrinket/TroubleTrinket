@@ -14,7 +14,9 @@ $${\color{hotpink}trinket \space tin \space system}$$
 
 ``c&h | int | usually afk``
 
-``i love multishipping!! skaterlightpartybeetle canon!!!!``
+``i love multishipping!! skaterlightpartybeetle canon!!!! AND HYPERTANASPACE!!!``
+
+``fictkin of a. few. but i mostly feel strongest abt infected and subspace``
 
 <img src="https://64.media.tumblr.com/7225d2dcf097a53e5d5c95b0ab0ff06b/bbc29107b0806da4-d8/s640x960/3c2da904cbd265abcb5547180c0b8cd0e7df5490.gifv">
 
